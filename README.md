@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @ILikeThemThicc
+- 👋 Hi, I’m @Vedant Tamboli
 - 👀 I’m interested in ... Data Science
 - 🌱 I’m currently learning ... Dev
 - 💞️ I’m looking to collaborate on ... I really don't know
